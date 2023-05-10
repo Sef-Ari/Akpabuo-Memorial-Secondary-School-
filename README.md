@@ -1,2 +1,2 @@
-# Akpabuo-Memorial-Secondary-School-
+# Akpabuo-Memorial-Secondary-School
 APM SCHOOL
